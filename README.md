@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @SpiderAksh
+- 👀 I’m interested in learning coding languages and getting to know more people on the community
+- 🌱 I’m currently learning basic languages like c, c++ etc
+- 💞️ I’m looking to collaborate on building creative projects 
+- 📫 How to reach me:- akshatjaiswal826@gmail.com
+- 😄 Pronouns: He/Him
